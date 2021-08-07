@@ -55,3 +55,13 @@ De hecho, en estos más de siete meses del 2021 el peso ha perdido cerca de 517 
 Los analistas del mercado sostienen que debido a las circunstancias económicas, tanto internas como externas, en este segundo semestre del año habrá un dolar mucho más costoso, incluso por encima de los 4.000 pesos en algunos momentos.
 
 Durante toda la jornada de ayer la tasa de cambio mantuvo una tendencia al alza, desde el inicio a 3,910,65, la tasa más baja de la sesión. Al final de esta, se registró un leve descenso que marcó un precio de cierre de 3.967,10 pesos, según lo reportado por el sistema electrónico de negociación de la Bolsa de Valores de Colombia (BVC).
+
+
+
+
+FARÁNDULA
+
+Maluma, uno de los grandes invitados al concierto gratuito ‘We love NYC’
+Maluma fue incluido en el cartel de estrellas que se presentarán en el gran concierto ‘We love NYC’, en Nueva York, Estados Unidos.
+El Central Park recibirá a celebridades como Bruce Springsteen, Jimmy Fallon, Andrea Bocelli, The Killers, Carlos Santana, Jennifer Hudson, la Filarmónica de Nueva York y muchos más.
+El concierto será gratuito el sábado 21 de agosto, desde las 5 de la tarde, y quienes deseen ingresar deberán portar su carné de vacunación.
