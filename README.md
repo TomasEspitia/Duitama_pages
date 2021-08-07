@@ -65,3 +65,21 @@ Maluma, uno de los grandes invitados al concierto gratuito ‘We love NYC’
 Maluma fue incluido en el cartel de estrellas que se presentarán en el gran concierto ‘We love NYC’, en Nueva York, Estados Unidos.
 El Central Park recibirá a celebridades como Bruce Springsteen, Jimmy Fallon, Andrea Bocelli, The Killers, Carlos Santana, Jennifer Hudson, la Filarmónica de Nueva York y muchos más.
 El concierto será gratuito el sábado 21 de agosto, desde las 5 de la tarde, y quienes deseen ingresar deberán portar su carné de vacunación.
+
+
+
+
+
+
+
+DEPORTES
+
+¿Por qué Argentina es tan buena en los deportes colectivos?
+
+
+El país sudamericano exhibe en Tokio su gen competitivo en los deportes de grupo. Ahí ganó su primera medalla, y buscará dos más. ¿Qué hay detrás? "Una forma de entender la vida".
+
+Las Leonas son el equipo que hoy hace vibrar a Argentina. Hasta ayer también era el voleibol, que se quedó en semifinales y la semana pasada el Rugby 7, medalla de bronce en la modalidad y la única del país en estos Juegos. El país sudamericano demostró otra vez en Tokio que es una potencia en los deportes colectivos. 
+
+De los 177 deportistas argentinos que llegaron a Japón, 123 lo hicieron para participar en equipo. Son 10 selecciones en total, incluyendo hombres y mujeres, que están presentes en siete deportes del programa olímpico. Un número que pone a la nación a la altura de potencias olímpicas como Australia (8), Rusia (8), España (7), Italia (7), Francia (7), pero con un cuarto de su presupuesto.
+
