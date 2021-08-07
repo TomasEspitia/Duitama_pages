@@ -33,6 +33,25 @@ que salieron de la colectividad creada tras el Acuerdo de Paz, luego de que se c
 La comunicación resaltó que se reunirán el próximo 8 de agosto para “seguir sumando voluntades” y construir una colectividad que insista en la implementación
 integral del Acuerdo de Paz.
 
+
+
+
+
+
 ECONOMIA
 
 EL PRECIO DEL DOLAR SE ACERCA A LOS 4.000 PESOS 
+
+
+El dólar continúa ganándole terreno al peso colombiano. La divisa estadounidense estuvo a escasos 28 pesos de llegar al nivel máximo que podría alcanzar la tasa de cambio colombiana de 4.000 pesos, previsto por los analistas de este mercado para este segundo semestre del 2021.
+
+Faltando solo seis minutos para que concluyera la jornada cambiaria del viernes, por un solo dólar se pagó un máximo de 3.972 pesos, pero más temprano (10:15 de la mañana) había marcado su primer punto alto de la sesión al situarse sobre los 3.966 pesos.
+
+Este nuevo impulso ha llevado a que la tasa promedio de negociación, que sirve de base para fijar la tasa representativa del mercado (TRM) que rige par este fin de semana y el lunes de la siguiente semana, se sitúe sobre los 3.949,35 pesos, esto es, 38,5 pesos por encima de la TRM que rigió ayer viernes de 3.910,81 pesos.
+Con el avance del dólar ayer la devaluación en lo que va corrido del presente año ya supera el 15 por ciento, dejando al peso como una de las monedas latinoamericanas que más valor ha perdido frente al dólar.
+
+De hecho, en estos más de siete meses del 2021 el peso ha perdido cerca de 517 pesos, frente a dicha divisa.
+
+Los analistas del mercado sostienen que debido a las circunstancias económicas, tanto internas como externas, en este segundo semestre del año habrá un dolar mucho más costoso, incluso por encima de los 4.000 pesos en algunos momentos.
+
+Durante toda la jornada de ayer la tasa de cambio mantuvo una tendencia al alza, desde el inicio a 3,910,65, la tasa más baja de la sesión. Al final de esta, se registró un leve descenso que marcó un precio de cierre de 3.967,10 pesos, según lo reportado por el sistema electrónico de negociación de la Bolsa de Valores de Colombia (BVC).
