@@ -1,5 +1,5 @@
 
-                                                *DUITAMA PAGES*                                      
+                                                DUITAMA PAGES                                        
 
 OPINIÓN
 
@@ -32,3 +32,7 @@ que salieron de la colectividad creada tras el Acuerdo de Paz, luego de que se c
 
 La comunicación resaltó que se reunirán el próximo 8 de agosto para “seguir sumando voluntades” y construir una colectividad que insista en la implementación
 integral del Acuerdo de Paz.
+
+ECONOMIA
+
+EL PRECIO DEL DOLAR SE ACERCA A LOS 4.000 PESOS 
