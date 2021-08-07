@@ -17,3 +17,18 @@ el día a día, para aprender lo único que hace falta son las ganas de aprender
 en virus nos comentan que falta un pico de pandemia y será el más grave, me gustaría poner en tela de juicio la siguiente pregunta ¿Duitamá está 
 lista para un pico como el que viene?. No es necesario que se piense demás, seré claro y directo, la respuesta es negativa y estamos a tiempo de 
 poder hacer algo antes de que de nuevo sea muy tarde.
+
+
+
+
+
+POLÍTICA 
+
+NUEVO MOVIMIENTO POLITICO PROMOVIDO POR LOS "EX FARC"
+
+Todo parece indicar que nace una nueva fuerza política. En medio de un movido escenario preelectoral, un grupo de exintegrantes del Partido Comunes
+lidera la iniciativa que ya ha reunido a más de 100 mujeres y hombres que quieren participar directamente en la democracia. Sus promotores son aquellos
+que salieron de la colectividad creada tras el Acuerdo de Paz, luego de que se conocieran con más claridad las marcadas divisiones al interior de Comunes.
+
+La comunicación resaltó que se reunirán el próximo 8 de agosto para “seguir sumando voluntades” y construir una colectividad que insista en la implementación
+integral del Acuerdo de Paz.
